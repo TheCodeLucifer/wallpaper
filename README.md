@@ -13,10 +13,10 @@
 ![mountains7](lanterns_building_architecture_1418469_2560x1600.jpg)
 ![mountains8](os-x-el-capitan-summit-night-starry-sky-mountains-landscape-5120x3200-4020.jpg)
 ### cars
-![cars0](HKwc2reaIAF2Nu.jpg)
+![cars0](HKwc2reaIAAf2Nu.jpg)
 ![cars1](HKtPe1ja8AAJnF2.jpg)
 ![cars2](HKs9ylEa8AABYfy.jpg)
 ![cars3](HKrndOxbIAArpFl.jpg)
 ![cars4](HKq9BkyXkAASTW2.jpg)
 ### anime
-![anime](аніме_какоето.png)
+![anime](anime_kakoeto.png)
