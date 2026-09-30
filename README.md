@@ -20,6 +20,9 @@
 ![cars4](HKq9BkyXkAASTW2.jpg)
 ![cars5](HLY1XuOagAAhQm3.jpg)
 ![cars6](HLY1XuNakAA5ECd.jpg)
+![cars7](03vtow8xbd861.jpg)
+![cars8](68c9aacf1cbfc.png)
+![cars9](the-truth-about-mid-night-club-v0-mbr34x08a2291.png)
 ### anime
 ![anime](anime_kakoeto.png)
 ![anime](4ef826efe5132931b427f1fb212d7173.png)
