@@ -31,3 +31,4 @@
 ![anime](ea8cd8799e0d3be6dedf5ba383e5db5e.png)
 ![anime](dad54cce00a91f477a1f3ad8668a134a.png)
 ![anime](ddc7e5e24e9970df2ec5fba15e2b86a5.png)
+![anime](Berserkcastle.jpg)
